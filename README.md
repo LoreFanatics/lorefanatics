@@ -3,6 +3,7 @@
 # Hiya!
 
 We're the Lore Fanatics. A diagnosed PTSD-DID System! (more in strawpage <3)
+
 We play ponytown a lot and we hide others freely!
 
 Hope we can be friends !
